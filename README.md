@@ -1,0 +1,2 @@
+# Entrega_Propuesta_Ante_proyecto_primer_periodo_evaluatorio
+ESPACIO PARA EVALUAR PROPUESTA PARA PROXIMA ENTREGA DE PRIMER PARCIAL
